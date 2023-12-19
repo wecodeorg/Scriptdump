@@ -5,7 +5,4 @@
 >
 > **Show your :heart:**
 >
-> **[Visit our official website by clicking here.](http://www.duocodies.ml)**
->
-> [Make sure you join our community by clicking on this beautiful sentence](https://telegram.me/duocodies)
->
+
